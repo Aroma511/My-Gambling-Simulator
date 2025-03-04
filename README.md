@@ -6,4 +6,4 @@ Have fun
 
 PS. It isnt fully finished picture updates are coming
 
-PSS. If there are issues contact me!
+Comment* If you face any issues contact me!
